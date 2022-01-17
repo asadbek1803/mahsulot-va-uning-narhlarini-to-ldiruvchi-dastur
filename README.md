@@ -1,0 +1,1 @@
+# mahsulot-va-uning-narhlarini-to-ldiruvchi-dastur
